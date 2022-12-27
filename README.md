@@ -1,2 +1,2 @@
 # naberius-
-O vigésimo quarto espírito é Naberius, Cerberus, Cerebus ou Kereberus. É um marques valoroso, e se mostra na forma de um enorme cão preto de três cabeças e com pés de pássaro. Agitado sobre o círculo, ele fala sobre todas 
+O vigésimo quarto espírito é Naberius, Cerberus, Cerebus ou Kereberus. É um marques valoroso, e se mostra na forma de um enorme cão preto de três cabeças e com pés de pássaro. Agitado sobre o círculo, ele fala sobre todas as artes e ciências mas especialmente da arte retórica. Ele restaura títulos e honrarias perdidas. Comanda 19 legiões de espíritos. Seu selo é este, devendo ser preparado como se deve saber
